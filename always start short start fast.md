@@ -1,0 +1,1 @@
+focus is focusing on one thing while ignoring emotional disbalance by not letting have control over it.
